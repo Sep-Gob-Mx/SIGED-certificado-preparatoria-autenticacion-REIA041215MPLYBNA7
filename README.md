@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-REIA041215MPLYBNA7
+REIA041215MPLYBNA7
